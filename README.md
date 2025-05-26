@@ -1,0 +1,2 @@
+# lonelywud
+My Lonelywud palette
